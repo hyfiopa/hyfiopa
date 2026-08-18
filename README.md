@@ -1,3 +1,3 @@
 <p align="center">
-<img src='https://i.pinimg.com/1200x/7d/0d/85/7d0d85a167e9b1fc26a6fc001fa3571d.jpg' width='50%'> <br>
+<img src='https://static.wikia.nocookie.net/houkai-star-rail/images/b/ba/High_Cloud_Quintet.jpg/revision/latest/scale-to-width-down/1000?cb=20240416055210' width='50%'> <br>
  </p>

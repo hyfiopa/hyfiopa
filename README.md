@@ -1,3 +1,8 @@
 <p align="center">
-<img src='https://static.wikia.nocookie.net/houkai-star-rail/images/b/ba/High_Cloud_Quintet.jpg/revision/latest/scale-to-width-down/1000?cb=20240416055210' width='50%'> <br>
- </p>
+<img src='https://pbs.twimg.com/media/F_du_LfbkAAHhmP?format=jpg&name=large' width='50%'> <br>
+
+<p align="center">
+@Lianzi_ on twitter⠀ ⠀ ⠀ ⠀ ⠀⋆✴︎˚｡⋆˚࿔⠀ ⠀ ⠀ ⠀ ⠀@l1p3k4 on tumblr
+ 
+<p align="center">
+<img src='https://64.media.tumblr.com/ed743c24c514336f6597d670578e7879/3f95c332f5b3cfdf-29/s2048x3072/4c8d9af305ec20475d51866d7b9711ef9fef9fdc.pnj' width='50%'> <br>

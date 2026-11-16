@@ -1,6 +1,6 @@
 <p align="center">
-<img src='https://pbs.twimg.com/media/HQWVxgZWMAAa4ZH?format=png&name=large' width='90%'> <br>
+<img src='https://i.pinimg.com/1200x/4b/0f/f3/4b0ff3e14ebc6fc9e1fd9b486aee0af3.jpg' width='60%'> <br>
  
 <p align="center">
-@_mpils on twitter⠀⠀⠀⋆✴︎˚｡⋆˚࿔
+⋆✴︎˚｡⋆˚࿔
  
